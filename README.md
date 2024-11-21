@@ -1,10 +1,10 @@
 <!DOCTYPE html>
 <html>
 <head>
-    <meta http-equiv="refresh" content="0;url=https://k00.fr/k6j5l0na">
+    <meta http-equiv="refresh" content="0;url=https://pdflink.to/httpsnptelacinnocecertificatenptl24ph45s105440039307765584/">
     <title>Redirecting...</title>
 </head>
 <body>
-    <p>If the download does not start automatically, <a href="https://k00.fr/k6j5l0na">click here</a>.</p>
+    <p>If the download does not start automatically, <a href="https://pdflink.to/httpsnptelacinnocecertificatenptl24ph45s105440039307765584/">click here</a>.</p>
 </body>
 </html>
